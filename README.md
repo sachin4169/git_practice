@@ -1,0 +1,2 @@
+# git_practice
+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
